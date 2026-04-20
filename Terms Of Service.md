@@ -82,4 +82,4 @@ These Terms may be updated at any time. Continued use of the Bot after changes m
 
 **8. Contact**
 
-If you have questions or requests (such as data removal), please contact: **Renzy**
+If you have questions or requests (such as data removal), please contact: **Renzy or Mild Headache**
