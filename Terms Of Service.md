@@ -1,4 +1,4 @@
-# Terms Of Services for Ford Motor Company Dex
+# Terms Of Services
 
 **Last Updated** *4/20/2026* / *4-20-2026* / *April 20th 2026*
 
