@@ -1,4 +1,4 @@
-# Privacy Policy for Ford Motor Company Dex
+# Privacy Policy
 
 **Last Updated:** *4/20/2026* / *4-20-2026* / April 20 2026
 
